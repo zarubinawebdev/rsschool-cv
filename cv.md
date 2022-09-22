@@ -5,7 +5,7 @@ Located in **Taskent, Uzbekistan**
 * **Phone:** +998890 947-90-46
 * **Telegram:** @Soverena
 ## Summary
-I work as a project manager at a large bank in Uzbekistan. Before that I worked as a freelancerккк as a website developer for about a year.
+I work as a project manager at a large bank in Uzbekistan. Before that I worked as a freelancer as a website developer for about a year.
 ## Skills
 * Photoshop
 * Figma
